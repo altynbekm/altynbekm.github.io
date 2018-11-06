@@ -1,1 +1,0 @@
-# altynbekm.github.io
